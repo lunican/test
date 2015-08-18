@@ -1,6 +1,7 @@
 ## Seven Decisions That Killed Downtown
 
-<a href="http://www.metrojacksonville.com/gallery/index.php?i=4284505824&ik=dGHS2BC&g=47709618&gk=w9nKkj" target="_blank"><img class="article_photo" src="http://photos.metrojacksonville.com/photos/4284505824_dGHS2BC-800x1000.jpg" /></a>
+![building](http://photos.metrojacksonville.com/photos/4284505824_dGHS2BC-800x1000.jpg)
+
 _Major office buildings developed or occupied as corporate headquarters for extended periods of time by Jacksonville-based companies that no longer exist._  
 
 They say, the location of a corporations headquarters is an important element of its image and personality. It's also an important economic element for the communities and neighborhoods they call home. 
