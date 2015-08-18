@@ -26,6 +26,9 @@ However, AHL didn't stay around long. In 1994, it completed a new 8-story, 150,0
 
 While the holding firm was dissolved, Allstate did keep the existing management team, regional headquarters and its 600 jobs in the Southside. Nevertheless, the relocation to the Southside did result in the loss of hundreds of downtown jobs and more office vacancies.
 
+![M8ojMQx.jpg]({{site.baseurl}}/M8ojMQx.jpg)
+
+
 <a href="http://www.metrojacksonville.com/gallery/index.php?i=4284376270&ik=D57JzQg&g=47709618&gk=w9nKkj" target="_blank"><img class="article_photo" src="http://photos.metrojacksonville.com/photos/4284376270_D57JzQg-800x1000.jpg" /></a>
 <i>Courtesy of the State Archives of Florida</i>
 
